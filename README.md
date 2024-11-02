@@ -1,2 +1,0 @@
-# Khusnul-Khotimah_05TPLK001
-UTS PEMROGRAMAN WEB 1
